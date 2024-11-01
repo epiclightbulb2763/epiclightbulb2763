@@ -11,3 +11,5 @@ thanos , ee , ppt2 , c2bc + a few more
 i prolly forgot
 
 check the links btw (if u wanna)
+olso im not joining other parties
+in pt
