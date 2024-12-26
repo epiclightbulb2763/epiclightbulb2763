@@ -13,5 +13,3 @@ i prolly forgot
 check my pronouns page plz ,, ovo (if u wanna)
 olso im not joining other parties
 in pt
-
-![a6c2259fd02c4a36148f15b1d01372bc](https://github.com/user-attachments/assets/cfa48b9a-9b34-417e-9d94-a68db99e538f)
